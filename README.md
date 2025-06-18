@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on [Frontend Website of VoxEdition Works Solution Inc.](https://voxeditionworks.com/)
 
-- 📫 How to reach me **https://github.com/codeStreakShifu/**
+- 📫 How to reach meeeee **https://github.com/codeStreakShifu/**
 
 <h3 align="left">Connect with meeeee:</h3>
 <p align="left">
